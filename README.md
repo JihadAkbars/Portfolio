@@ -1,5 +1,6 @@
 # **Niat, Belajar, Berusaha, Menguasai, Flexing.**
-Follow Dong 
+
+Social Media:
 
 > [Instagram](https://www.instagram.com/mhmdjhdz_)
 
